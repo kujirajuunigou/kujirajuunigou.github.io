@@ -26,7 +26,7 @@ After the live stream, there was an interview with the press at the event, revea
 
 **Q: Please tell us your honest thoughts now that the livestream has ended.**
 
-Matsui: While I kept going with the stream, the comments feed moved too quickly and it was difficult for me to follow. I'm planning to do more livestreams soon, so I think there are improvements that can be made. While deciding on the name for the channel, there were so many great suggestions that I thought it would take some time to decide on one, but unexpectedly there was one that resonated with me that it took no time at all. I was worried if there was too much time left for the stream after that.
+Matsui: While I kept going with the stream, the comments feed moved too quickly and it was difficult for me to follow. I'm planning to do more livestreams soon, so I think there are improvements that can be made. While deciding on the name for the channel, there were so many great suggestions that I thought it would take some time to decide on one, but unexpectedly there was one that resonated with me that it took no time at all. I was worried that there was too much time left for the stream after that.
 
 **Q: The channel name was decided to be "Jurina HOUSE", what made you decide on that name?**
 
@@ -54,7 +54,7 @@ Matsui: It was unfortunate that my graduation was postponed, but there were thin
 
 **Q: About the "Local Talk Event" held during these two days where you were able to talk with fans, how was it?**
 
-Matsui: A while back it was limited to Aichi residents only, but this time people from all over the country came. Many of them told me "it's been a year since I last saw you!". The things that were said to me the most was "I'm happy I got to see you before you graduate", and "part of me is sad that this might be our last time to see each other", and it really sunk in that I was really going to be graduating.
+Matsui: A while back it was limited to Aichi residents only, but this time people from all over the country came. Many of them told me "it's been a year since I last saw you!". The things that were said to me the most were "I'm happy I got to see you before you graduate", and "part of me is sad that this might be our last time to see each other", and it really sunk in that I was really going to be graduating.
 
 **Q: Did you feel lonely about it?**
 
